@@ -1,0 +1,3 @@
+How to make the dish
+
+First put flour and eggs in a pan and stir it up.Then you make the dough you made from the eggs and flour and turn it into a ball.After flat it out and put it in a machine which makes it go to strsight lines.After you hang the pasta on a wooden pasta rack.After you will have to cook the pasta and when you are done you can put any ingredients you want on the top and that is how you make a pasta dish.
